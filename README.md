@@ -1,12 +1,14 @@
-C00LKIDD PARODY ACC
+(C00LKIDD PARODY ACC)
 
 (very busy / game developing 57% of the time, only whisper if crowning or close friends or if emergency)
 
-free c*h u dont have to ask 😋
+(follow my twt rp ACC!)
 
-(´｡•᎑•`)っ 💕 i love my papa and mama
+U CAn SIT IWTH ME!!!!!!!! only COOL! kid.s,,,. T_T
 
-bluudud hater. >: (
+(´｡•᎑•`)っ 💕 ilvo e my pap a
+
+BLudDDUD HATEEEEEEEEEEEEEEEERRRRRRTRRRRRRRRRRRRRR
 
 
 ![image](https://github.com/user-attachments/assets/23edd7f2-2de6-4e91-b0a4-e4634af65701) ![image](https://github.com/user-attachments/assets/88737d99-74a1-4c73-a0fe-a0bfe8e5b276) ![image](https://github.com/user-attachments/assets/2ffc468a-114a-4cad-8392-8f5ccb7027b0) 
