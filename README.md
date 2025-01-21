@@ -18,10 +18,9 @@ BLudDDUD HATEEEEEEEEEEEEEEEERRRRRRTRRRRRRRRRRRRRR
 
 image of the day
 
-![image](https://github.com/user-attachments/assets/00748f78-517e-4a64-87ca-e274b61d250d)
+![image](https://github.com/user-attachments/assets/66087937-bc71-4ee6-9e24-6b5b04af3216)
 
 
-(art not mine)
-
+(art made by me)
 
 
