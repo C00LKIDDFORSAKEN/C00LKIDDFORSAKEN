@@ -6,7 +6,7 @@
 
 (very busy / game developing 57% of the time, only whisper if crowning or close friends or if emergency |  follow my twt rp/parody ACC | dont  copy or take heavy inspo on my skins unless i say u can idk just the thought of it kinda makes me nervous, i like to be original... | i love my husband alot btw | 007n7's c+h when im in my c00lkidd skins PLSSSS BRO | I'm very sensitive and ill prolly cry over the smallest thing u say LOL | ask to rp on pt idrc if we do it in whispers or public chat but I prefer whispers cuz dat shit embarrassing >_>.. | IM OPEN TO MAKING NEW FRIENDS!!!!!!! but my social battery drains really easily so just note that, I can only talk to someone for like 5 minutes before getting drained, BUT PLEASE DONT BE SCARED TO COME UP TO mE AND BE FrienDS!!! i love all my friends | I use this account more than my actual ACC lol.)
 
-## inc text below vvv
+## inc text below vvvv
 
 U CAn SIT IWTH ME!!!!!!!! only COOL! kid.s,,,. T_T
 
