@@ -8,6 +8,8 @@
 
 ( my c00lkidds interests : legos (he loves the lego movies ALOT) , playing , drawing , bullying bluududs for not being cool (joke) , being COOL! playing roblox , Minecraft, batman, spiderman, eddsworld (the old ver), bfdi and ii season 1, c00lkidd likes ii season 2 too but not the newer eps cyz it makes him sad )
 
+( hes really bad at english, he probably will talk like how bingo does in that one bluey episode where shes like "im hurry upping!" shit like that)
+
 ## inc text below vvvv
 
 U CAn SIT IWTH ME!!!!!!!! only COOL! kid.s,,,. T_T
