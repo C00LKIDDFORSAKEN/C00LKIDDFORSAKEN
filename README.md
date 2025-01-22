@@ -12,9 +12,11 @@
 
 U CAn SIT IWTH ME!!!!!!!! only COOL! kid.s,,,. T_T
 
-(´｡•᎑•`)っ 💕 ilvo e my pap a
+(´｡•᎑•`)っ 💕 ilovee my pap a
 
 TEAM c00lKIDD!!!!! JOIN TODAY!!!!!!
+
+HE HIM MAN MANLY c.uz im a BIG C,OOL BOY
 
 BLudDDUD HATEEEEEEEEEEEEEEEERRRRRRTRRRRRRRRRRRRRR
 
