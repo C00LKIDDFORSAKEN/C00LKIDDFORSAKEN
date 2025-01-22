@@ -8,6 +8,8 @@ U CAn SIT IWTH ME!!!!!!!! only COOL! kid.s,,,. T_T
 
 (´｡•᎑•`)っ 💕 ilvo e my pap a
 
+TEAM c00lKIDD!!!!! JOIN TODAY!!!!!!
+
 BLudDDUD HATEEEEEEEEEEEEEEEERRRRRRTRRRRRRRRRRRRRR
 
 
