@@ -1,8 +1,18 @@
 (C00LKIDD PARODY ACC)
 
+ooc text below vvvv
+
 (very busy / game developing 57% of the time, only whisper if crowning or close friends or if emergency)
 
-(follow my twt rp ACC!)
+(follow my twt rp/parody ACC)
+
+(dont  copy or take heavy inspo on my skins unless i say u can idk just the thought of it kinda makes me nervous, i like to be original...)
+
+(i love my husband alot btw)
+
+(007n7's c+h when im in my c00lkidd skins PLSSSS BRO)
+
+inc text below vvv
 
 U CAn SIT IWTH ME!!!!!!!! only COOL! kid.s,,,. T_T
 
