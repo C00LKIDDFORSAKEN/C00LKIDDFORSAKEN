@@ -1,5 +1,7 @@
 (C00LKIDD PARODY ACC)
 
+## SIGN MY STRAWPAGE AND ATABOOK!!!
+
 ## ooc text below vvvv
 
 (game developer (3d modeler concept artist and scripter), 2d and 3d artist, comms opening once i get my life together :sob:)
