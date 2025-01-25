@@ -1,1 +1,1 @@
-ifm abo tu yto end asit allhelp
+kinasusuklaman ko ang lahat
