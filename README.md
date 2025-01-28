@@ -6,7 +6,7 @@
 
 (game developer (3d modeler concept artist and scripter), 2d and 3d artist, comms opening once i get my life together 😭)
 
-(very busy / game developing 57% of the time  | follow my twt rp/parody ACC | i love my husband alot btw | please be nice to me I'm very sensitive| ask to rp on pt idrc if we do it in whispers or public chat but I prefer whispers cuz dat shit embarrassing >_>.. | IM OPEN TO MAKING NEW FRIENDS!!!!!!! but my social battery drains really easily so just note that, BUT PLEASE DONT BE SCARED TO COME UP TO mE AND BE FrienDS!!! i love all my friends | I use this account more than my actual ACC lol . you dont have to use tonetags with me at all )
+(very busy / game developing 57% of the time  | follow my twt rp/parody ACC | i love my husband alot btw | please be nice to me I'm very sensitive| ask to rp on pt idrc if we do it in whispers or public chat but I prefer whispers cuz dat shit embarrassing >_>.. | IM OPEN TO MAKING NEW FRIENDS!!!!!!! but my social battery drains really easily so just note that, BUT PLEASE DONT BE SCARED TO COME UP TO mE AND BE FrienDS!!! i love all my friends | I use this account more than my actual ACC lol . you dont have to use tonetags with me at all . i make a lot of probably offensive jokes just tell me to stop if it makes u uncomfortable pls/gen I make jokes like calling people fat acting like THOSE "systems", yknow..but just tell me if that makes you uncomfortable )
 
 ( my c00lkidds interests : legos (he loves the lego movies ALOT) , playing , drawing , bullying bluududs for not being cool (joke) , being COOL! playing roblox , Minecraft, batman, spiderman, eddsworld (the old ver), bfdi and ii season 1, c00lkidd likes ii season 2 too but not the newer eps cyz it makes him sad )
 
