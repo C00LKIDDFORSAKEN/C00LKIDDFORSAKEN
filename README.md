@@ -1,6 +1,8 @@
 (C00LKIDD PARODY ACC)
 
-## SIGN MY STRAWPAGE AND ATABOOK. AND FOLLOW MY TWITTER PLS
+## (very mentally unstable rn btw please bare with me haha)
+
+## (SIGN MY STRAWPAGE AND ATABOOK. AND FOLLOW MY TWITTER PLS)
 
 ## ooc text below vvvv
 
