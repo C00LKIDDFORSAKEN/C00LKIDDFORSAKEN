@@ -36,6 +36,5 @@ BLudDDUD HATEEEEEEEEEEEEEEEERRRRRRTRRRRRRRRRRRRRR
 
 image of the day
 
-![image](https://github.com/user-attachments/assets/5cd1641b-0def-4886-9363-310f27c1c203)
+![image](https://github.com/user-attachments/assets/6df3cfa2-408d-4741-82eb-33204ecb2b66)
 
-(art by me)
