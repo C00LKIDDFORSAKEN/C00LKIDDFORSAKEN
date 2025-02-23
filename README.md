@@ -6,6 +6,8 @@
 
 ## ooc text below vvvv
 
+# [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mqxe2ykx9hqvu8r6zuna1d1p3&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=863232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 (game developer (3d modeler concept artist and scripter), 2d and 3d artist, comms opening once i get my life together 😭)
 
 (very busy / game developing 57% of the time  | follow my twt rp/parody ACC | i love my husband alot btw | please be nice to me I'm very sensitive| ask to rp on pt idrc if we do it in whispers or public chat but I prefer whispers cuz dat shit embarrassing >_>.. | IM OPEN TO MAKING NEW FRIENDS!!!!!!! but my social battery drains really easily so just note that, BUT PLEASE DONT BE SCARED TO COME UP TO mE AND BE FrienDS!!! i love all my friends | I use this account more than my actual ACC lol . you dont have to use tonetags with me at all . i make a lot of probably offensive jokes just tell me to stop if it makes u uncomfortable pls/gen I make jokes like calling people fat acting like THOSE "systems", yknow..but just tell me if that makes you uncomfortable )
@@ -15,6 +17,7 @@
 ( hes really bad at english, he probably will talk like how bingo does in that one bluey episode where shes like "im hurry upping!" shit like that)
 
 (i see 1x4 as a uncle or grandfather figure to c00lkidd, and jason as a like babysitter or other uncle to c00lkidd, pls sit next to me forsaken 1x4, jason, and 007n7 cosplays )
+
 
 ## inc text below vvvv
 
