@@ -9,7 +9,7 @@
 <p align="center"> <img src="wip"> </p>
 
 
-<p align="center"> <a href="https://gr13f3rrr.straw.page">strawpage</a>  <a href="https://https://rentry.co/5iiiw9mx">rentry</a>  <a href="https://c00lestkiddintown.straw.page">c00lkidd</a>  <a href="https://https://github.com/br0ken-spawn">brokenspawn</a>  <a href="https://https://github.com/MAFIOSO-DREAMGAME">mafioso</a> </p>
+<p align="center"> <a href="https://gr13f3rrr.straw.page">strawpage</a>  <a href="https://rentry.co/5iiiw9mx">rentry</a>  <a href="https://c00lestkiddintown.straw.page">c00lkidd</a>  <a href="https://https://github.com/br0ken-spawn">brokenspawn</a>  <a href="https://https://github.com/MAFIOSO-DREAMGAME">mafioso</a> </p>
 
 <p align="center"> <sub> free c*h </sub> </p>
 <p align="center"> <ins> I love you, Taphiu, you cut it out. </ins> </p>
